@@ -1,4 +1,4 @@
-# Javier Gabaldón Donat
+# Javier Donat
 
 ## Información básica
 
